@@ -1,7 +1,7 @@
 
-<p align="center"> Wyatt / Cruor
+<p align="center"> Ferrum
   
-<p align="center"> call me Georgia which is most prefered!
+<p align="center"> 
 
 <p align="center"> Comissioner and Artist . Yet I post slow on Tumblr.
 
