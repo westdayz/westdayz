@@ -11,4 +11,4 @@
 
 ♯ @Machinimatic 
 
-These are the most freakin' coolest people around !! Pleaseplease go check them out !
+These are the most freakin' coolest people around !! Pleaseplease go check them out, you can find their links in my thingy beside this!
