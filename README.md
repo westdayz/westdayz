@@ -10,10 +10,6 @@
 
 ♯ alexithymia ﹕ other mental health issues ﹕ ask.
 
-♯ neurodivergent ﹕ Slow processor sometimes, please be patient with me.
-
-♯ dyslexic ﹕ please expect common word mistakes or bad word choices.
-
 ⋮ ⌗ ┆ Pony Town Info . 
 
 ♯ Do not copy my skins ﹕ ask for inspo unless your close.
