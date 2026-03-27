@@ -2,7 +2,8 @@
 
 ♯ 
 
-﹕ " I'm your utterly loyal knight!."
+﹕ " I'm more likely to find a piano in the sky
+So many fishes in the sea so why can't one of them be mine ?."
 
 ♯
 
