@@ -18,4 +18,6 @@ So many fishes in the sea so why can't one of them be mine ?."
 
 ♯ block freely
 
+♯ I don't really have a dni expect I block freely, I gen love having friends/making them! 
+
 
