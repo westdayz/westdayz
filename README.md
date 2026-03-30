@@ -27,6 +27,6 @@ So many fishes in the sea so why can't one of them be mine ?."
 
 ♯ I will still be editing my socials but I most likely be out of contact with people. (But depending on the day and if I'm feeling fine, I may/may not answer. This is including for ata/gc.)
 
-♯ I'll also be updating this constantly just so ppl know I'm alive 
+♯ I'll also be updating this a lot just so ppl know I'm still here. 
 
 
