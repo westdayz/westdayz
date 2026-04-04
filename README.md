@@ -2,9 +2,9 @@
 
 ♯ 
 
-﹕ " Gotta let you know
+﹕ " Baby, you'll never find a love like mine
 
-Your love has got me going like you couldn't imagine ."
+I'll make you scream, and I'll make you want it ."
 
 ♯
 
