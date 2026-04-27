@@ -1,10 +1,11 @@
 <p align="center"> ₊⊹🌻‧₊˚ ⋅ ⩩
 
 
-<p align="center"> "But it wouldn't really help 
- Wouldn't fix my issues or Change your mind
-<p align="center"> 'Cause I broke your heart and you buried mine."
+<p align="center"> " Will you end my Pain ?
 
+<p align="center">  Will you take my Life ? "
+
+Broken - Lund 
 
   
   
