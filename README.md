@@ -1,7 +1,7 @@
 <p align="center"> Westdayz or Dangerdayz ?
 
 <p align="center"> .
-<p align="center"> ₊⊹📂‧₊˚ ⋅ ⩩
+<p align="center"> °°°°°°°°°°°°°°°°°°°
 <p align="center"> .
 
 <p align="center"> . Loose My Breath - Destiny's child .
