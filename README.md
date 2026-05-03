@@ -33,4 +33,11 @@
 <p align="center"><img width="735" height="485" alt="ae8d4305dc9ea50c685f423ac1b06bf7" src="https://github.com/user-attachments/assets/ed6858b5-d6e5-4809-914d-d8e7c5358baa" />
 
 <p align="center"> • ───────────────── •• ───────────────── •• ───────────────── •
+<p align="center"> .
+
+<p align="center"> I love König sm guys he's me irl.
+  
+<p align="center"><img width="800" height="801" alt="dc5721d7b0754f08531edae8ca52c477" src="https://github.com/user-attachments/assets/0c6f58b4-b3e0-43f0-bb51-1cf7e955e9d7" />
+
+<p align="center"> • ───────────────── •• ───────────────── •• ───────────────── •
 
