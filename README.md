@@ -22,7 +22,7 @@
 
 <p align="center"> Call me Dayz or West
 
-<p align="center"> 14 yr
+<p align="center"> 14teen
 
 <p align="center"> I really want more friends so dont be shy n be my friend,, pretty please with a motorcycle on top
 
