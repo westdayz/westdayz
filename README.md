@@ -34,12 +34,10 @@
 <p align="center"> • ───────────────── •• ───────────────── •• ───────────────── •
 <p align="center"> .
 
-<p align="center"> 
+<p align="center"><img width="736" height="414" alt="7c21d7698edb908db6e5e596412c2a1d" src="https://github.com/user-attachments/assets/952ae30e-eb09-4c0b-8c95-e793030d866d" />
 
 <p align="center"> • ───────────────── •• ───────────────── •• ───────────────── •
 <p align="center"> .
-  
-<p align="center"><img width="736" height="414" alt="7c21d7698edb908db6e5e596412c2a1d" src="https://github.com/user-attachments/assets/952ae30e-eb09-4c0b-8c95-e793030d866d" />
 
   
 <p align="center"><img width="735" height="485" alt="ae8d4305dc9ea50c685f423ac1b06bf7" src="https://github.com/user-attachments/assets/ed6858b5-d6e5-4809-914d-d8e7c5358baa" />
