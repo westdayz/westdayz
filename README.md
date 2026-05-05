@@ -33,7 +33,7 @@
 <p align="center"> • ───────────────── •• ───────────────── •• ───────────────── •
 <p align="center"> .
 
-<p align="center"><img width="734" height="412" alt="7c21d7698edb908db6e5e596412c2a1d" src="https://github.com/user-attachments/assets/952ae30e-eb09-4c0b-8c95-e793030d866d" />
+<p align="center"><img width="732" height="409" alt="7c21d7698edb908db6e5e596412c2a1d" src="https://github.com/user-attachments/assets/952ae30e-eb09-4c0b-8c95-e793030d866d" />
 
 <p align="center"> • ───────────────── •• ───────────────── •• ───────────────── •
 <p align="center"> .
