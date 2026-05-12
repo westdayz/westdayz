@@ -1,8 +1,8 @@
 <p align="center"> 
-  editing
+  editing - %2C
 
 
 
 <p align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Inconsolata&weight=500&size=50&duration=4000&pause=200&color=000000&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1600&height=170&lines=I+had+a+Corolla%2C+now+I+got+a+chauffer;Keepin'+this+shit+on+the+road%2C+ain't+runnin'+'till+it's+over+" width="60%" />
+<img src="https://readme-typing-svg.demolab.com?font=Inconsolata&weight=500&size=50&duration=4000&pause=200&color=000000&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1600&height=170&lines=You+should+ㅤ+You+should+not+push+me+ ;My+chopper+get+right+into+action+ +into action+ +into action+" width="60%" />
 <br><br>
